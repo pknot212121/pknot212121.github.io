@@ -1,2 +1,2 @@
-### Ładne zdjęcia z AGH:
+# Ładne zdjęcia z AGH:
 ![](R.jpg)
