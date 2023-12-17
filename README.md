@@ -3,8 +3,8 @@
 
 ![](OIP.jpg)
 
-![](OIP (1).jpg)
+![](Akademik.jpg)
 
-![](OIP (2).jpg)
+![](Biblioteka.jpg)
 
-![](OIP (3).jpg)
+![](Miasteczko.jpg)
