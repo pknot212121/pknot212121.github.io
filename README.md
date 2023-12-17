@@ -1,2 +1,2 @@
-### Top 5 powodów dlaczego AGH jest lepszy od polibudy:
+### Ładne zdjęcia z AGH:
 ![](R.jpg)
